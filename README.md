@@ -1,5 +1,6 @@
 # **Muhammad Faishal Shidqi**
-### Web Developer, Cloud Engineer
+### Newcomer Web Developer and Cloud Engineer
+### Currently looking for working experience
 [linkedin]: https://www.linkedin.com/in/muhammad-faishal-shidqi/
 
 ### Connect with me
